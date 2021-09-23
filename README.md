@@ -1,4 +1,4 @@
-# Baacloud官网网址发布，请大家Ctrl+D收藏此页面避免丢失！
+# Baacloud官网网址发布，Ctrl+D收藏此页面避免丢失！
 
 # 免代理网址:http://t.colafu.com/ernoq
 
